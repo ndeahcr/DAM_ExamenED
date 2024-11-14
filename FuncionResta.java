@@ -1,4 +1,4 @@
-Primera modificacionsRESGIAEewewewewewewewewewbfbesdy8fkubsdHN,GJEWKOLR7A89HUIsegundamodificacion
+AYUDANOENTIENDOPORQUESALE EL CONFLICTOPrimera modificacionsRESGIAEewewewewewewewewewbfbesdy8fkubsdHN,GJEWKOLR7A89HUIsegundamodificacion
 
 
 Segunda modificacion
