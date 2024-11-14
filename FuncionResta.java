@@ -1,4 +1,9 @@
+HEAD
 AYUDANOENTIENDOPORQUESALE EL CONFLICTOPrimera modificacionsRESGIAEewewewewewewewewewbfbesdy8fkubsdHN,GJEWKOLR7A89HUIsegundamodificacion
+o
+ 8934H	NLDBVOÙDPOMn´ñ`drhjiDÑLHNÒ0ino
+o -KLÑdsPrimera modificacionsRESGIAEewewewewewewewewewbfbesdy8fkubsdHN,GJEWKOLR7A89HUIsegundamodificacion
+pruebas
 
 
 Segunda modificacion
